@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 📕 - I'm currently Studying ✔️<br>💡 - I'm currently Learning ✔️<br>✏️ - I'm currently Working in my own projects ✔️<br>👔 - I'm looking for a work team ✔️
 
 
